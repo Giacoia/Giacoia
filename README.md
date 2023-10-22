@@ -1,6 +1,6 @@
 # 💫 About Me:
 👨‍💻 I’m currently studying at the university of Milan<br>
-🎓 I graduated from the university of calabria<br>
+🎓 I graduated from the university of Calabria<br>
 
 
 ## 🌐 Socials:
